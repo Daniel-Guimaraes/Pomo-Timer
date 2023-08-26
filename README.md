@@ -56,6 +56,10 @@
 
 
 
+https://github.com/Daniel-Guimaraes/Pomo-Timer/assets/102679381/580bd8a2-365d-4990-a39a-5655b69740ab
+
+
+
 
 
 &nbsp;
